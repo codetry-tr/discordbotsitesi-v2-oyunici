@@ -2,7 +2,7 @@
 
 Bu altyapı Oyunici tarafından kodlanmıştır.
 
-Emek hırsızlığı yapanlara hakkım haram olsun. Ayrıca telif atarım. Ücreti karşılarsanız sıkıntı yok. Ücret: Abone olmak
+Emek hırsızlığı yapanlara telif atarım. Ücreti karşılarsanız sıkıntı yok. Ücret: Abone olmak
 
 Şimdiden teşekkürler.
 
